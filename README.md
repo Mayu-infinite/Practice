@@ -29,5 +29,7 @@ Homework 2 Assignment Details
 https://docs.google.com/document/d/1Y8YODVFj7RaH65436pjOb-oiEXLYNtHyTyimzujfioI/edit?usp=sharing
 
 Assignment 3
+https://docs.google.com/document/d/1CTUEjF-YpZi4x-NXozLUBCsYOZ4EgEjirSZgEtfaGAM/edit?usp=sharing
+
 
 
